@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **shubhamhcs@gmail.com**
 
-- ⚡ Fun fact **I'm a strategic mastermind on the chessboard with a solid 750+ ELO—just one brilliant move away from world domination... or at least not blundering my queen!**
+- ⚡ Fun fact **I'm a strategic mastermind on the chessboard with a solid 1250+ ELO—just one brilliant move away from world domination... or at least not blundering my queen!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
